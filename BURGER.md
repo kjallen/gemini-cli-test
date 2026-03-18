@@ -1,1 +1,0 @@
-Burgers are a global phenomenon, adapted and loved in countless variations. From the classic American cheeseburger to gourmet creations with unique toppings, there's a burger for every palate.
